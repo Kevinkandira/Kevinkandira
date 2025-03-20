@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Kevinkandira
 - 👀 I’m interested in creating AI infrastructure to sell. I am also in Marketing
 - 🌱 I’m currently learning screenwriting, editing, film making
-- 💞️ I’m looking to collaborate on building AI infrastructure and 
+- 💞️ I’m looking to collaborate on building AI infrastructure and Collaborate with creatives
 - 📫 How to reach me okandira@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
